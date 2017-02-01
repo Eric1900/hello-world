@@ -1,2 +1,2 @@
 # hello-world
-is this new start of my live?
+You have all the weapons you need to win and succeed!
